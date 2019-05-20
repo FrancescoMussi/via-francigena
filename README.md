@@ -37,21 +37,21 @@ Via Francigena 2019
 
 - [Da Camaiore a Lucca - 23,8 km ](https://www.viefrancigene.org/en/resource/statictrack/tappa-27-da-camaiore-a-lucca/)
 
+- Resting day in Lucca (8th July)
+
 - [Da Lucca ad Altopascio  - 18,5 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-28-da-lucca-ad-altopascio/)
 
-- [Da Altopascio a San Miniato - 29,0 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-29-da-altopascio-san-miniato/)
+- [Da Altopascio a San Miniato - 29,0 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-29-da-altopascio-san-miniato/) - (in two days)
 
-- [Da San Miniato a Gambassi Terme  - 23,9 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-30-da-san-miniato-gambassi-terme/)
+- [Da San Miniato a Gambassi Terme  - 23,9 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-30-da-san-miniato-gambassi-terme/) (But we reach Certaldo instead)
 
-- [Da Gambassi Terme a San Gimignano - 13,4 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-31-da-gambassi-terme-san-gimignano/)
+- Two days in Certaldo (13 - 15th July)
 
-- [Da San Gimignano a Monteriggioni - 30,9 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-32-da-san-gimignano-monteriggioni/) (three days)
+- [Certaldo - Gambassi Terme - 9km]
 
-  - San Gimignano - Certaldo (13 July)
-  
-  - Resting day in Certaldo (14 July)
+- [Da Gambassi Terme a San Gimignano - 13,4 km](https://www.viefrancigene.org/it/resource/statictrack/tappa-31-da-gambassi-terme-san-gimignano/)
 
-  - Certaldo - Monteriggioni (15th July)
+- [Da San Gimignano a Monteriggioni - 30,9 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-32-da-san-gimignano-monteriggioni/) (in two days)
 
 - [Da Monteriggioni a Siena - 20,6 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-33-da-monteriggioni-siena/)
 
