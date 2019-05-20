@@ -22,6 +22,7 @@ Via Francigena 2019
 - [Da Pontremoli ad Aulla - 32,3 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-23-da-pontremoli-ad-aulla/) maybe to do in two parts
 
 Pontremoli - Villafranca in Lunigiana
+
 Villafranca in Lunigiana - Aulla
 
 - [Da Aulla a Sarzana - 17,4 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-24-da-aulla-a-sarzana/)
