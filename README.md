@@ -45,7 +45,7 @@ Via Francigena 2019
 
 - [Da San Miniato a Gambassi Terme  - 23,9 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-30-da-san-miniato-gambassi-terme/) (But we reach Certaldo instead)
 
-- Two days in Certaldo (13 - 15th July)
+- One day in Certaldo (13rd July)
 
 - Certaldo - Gambassi Terme - 9km
 
