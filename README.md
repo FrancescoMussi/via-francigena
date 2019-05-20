@@ -47,7 +47,7 @@ Via Francigena 2019
 
 - Two days in Certaldo (13 - 15th July)
 
-- [Certaldo - Gambassi Terme - 9km]
+- Certaldo - Gambassi Terme - 9km
 
 - [Da Gambassi Terme a San Gimignano - 13,4 km](https://www.viefrancigene.org/it/resource/statictrack/tappa-31-da-gambassi-terme-san-gimignano/)
 
