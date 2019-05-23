@@ -42,7 +42,7 @@ Via Francigena 2019
 
 - [Da Altopascio a San Miniato - 29,0 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-29-da-altopascio-san-miniato/) - (in two days)
 
-- [Da San Miniato a Certaldo  - 23,9 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-30-da-san-miniato-gambassi-terme/) (But we reach Certaldo instead)
+- [Da San Miniato a Certaldo  - 23,9 km ](https://www.viefrancigene.org/it/resource/statictrack/tappa-30-da-san-miniato-gambassi-terme/)
 
 - Theatre in Certaldo (13th July)
 
